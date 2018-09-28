@@ -1,1 +1,1 @@
-# BetterMotherfuckingwebsite
+https://geoffroydesote.github.io/BetterMotherfuckingwebsite/ 
